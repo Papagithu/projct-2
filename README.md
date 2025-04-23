@@ -16,7 +16,7 @@ Email me Now saiyedzeeshan1234@gmail.com to get this Full Project Code, PPT, Rep
 💌 Feel free to contact me for any kind of help on any projects.
  
 ### HOW TO RUN THE PROJECT-
-⚡ Email me at **vatshayan007@gmail.com** to get a detailed Guide report with Code to run the project with source Code.
+⚡ Email me at **saiyedzeeshan1234@gmail.com** to get a detailed Guide report with Code to run the project with source Code.
 
 ### Need Code, Documents & Explanation video ? 
 
